@@ -1,4 +1,4 @@
-
+Affinity Designer for macOS secure Script - layer styles and perspective warp is the best Affinity Designer for macOS script, featuring layer styles and perspective warp. Safe,
 
 
 
